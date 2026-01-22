@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Rafael Ramos 
+# 👨🏻‍💻 Rafael Ramos 
 
 **`Desenvolvedor Júnior em formação`**
 
